@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/12oEcuT6ktAWZjbE5ddrxK78BAMStL8s1/view](https://drive.google.com/file/d/12oEcuT6ktAWZjbE5ddrxK78BAMStL8s1/view)
 
-- ⚡ Fun fact **I LOVE Outer Wilds. Play it! :D**
+- ⚡ Fun fact, **I LOVE Outer Wilds. Play it! :D**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
